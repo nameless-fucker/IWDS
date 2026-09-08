@@ -1,0 +1,1 @@
+Des typiske IRAQ spiel.
